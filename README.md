@@ -1,1 +1,1 @@
-# WildWolfsTip.github.io
+# WildWolfsTip
